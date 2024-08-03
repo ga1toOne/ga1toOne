@@ -1,16 +1,14 @@
-## Hi there 👋
+## Bem vindo ao meu perfil ❤️
 
-<!--
-**ga1toOne/ga1toOne** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+-Eu faço desenhos 
 
-Here are some ideas to get you started:
+-Estou me desenvolvendo em um campo mais artiisco
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Você pode ver as minhas artes em:
+
+*Instagram*: @ga1itoOne
+
+*TikTok*: @ga1to_one
+
+
+![](https://media1.tenor.com/m/mCiM7CmGGI4AAAAC/naruto.gif)
